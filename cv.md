@@ -1,5 +1,5 @@
 ##  Telyatitskaya Tatiana
-
+![Tatiana Telyatitskaya](/IMG_20180926_153125.jpg)
 ###  Contact information:
 - Location: Minsk, Belarus
 - Phone: +375 44 597 82 41
