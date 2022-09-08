@@ -3,7 +3,7 @@
 ###  Contact information:
 - Location: Minsk, Belarus
 - Phone: +375 44 597 82 41
-- Discord: Tanya Telyatitskaya(@TanyaTeNik)
+- Discord: [Tanya Telyatitskaya(@TanyaTeNik)](https://discordapp.com/users/#7726/ )
 - Telegram: [@TanyaTenik](https://t.me/TanyaTenik)
 - [Github](https://github.com/TanyaTeNik)
 
