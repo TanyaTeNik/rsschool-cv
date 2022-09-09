@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tanyatenik.github.io/rsschool-cv/
